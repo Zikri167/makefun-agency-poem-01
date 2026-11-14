@@ -1,0 +1,1 @@
+This entry follows someone who asks an AI agent to draft an apology while they sleep. The agent supplies the words, but the sender must choose whether to put their name on them and press send; the final click is both an act of delegation and an act they still own.
